@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @Saurabh-kr-Chauhan
+- 👋 Hi, I’m @Samurai
 - 👀 I’m interested in mind games
-- 🌱 I’m currently learning Pharmacy
+- 🌱 I’m currently learning Bgmi
 - 💞️ I’m looking to collaborate on mod
 - 📫 How to reach me aukaat mein rah bsdk
 
